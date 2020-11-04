@@ -11,7 +11,7 @@ Earlier bamboos, iron are used for scaffolding. These can be developed by tubes,
 Through aluminum we can avoid all these difficulties. Usage of aluminum scaffolding ladders vastly increased in due to it's extraordinary specifications like lighter in weight and cost effective. These towers are having high resistance to corrosion. The construction and destruction of aluminum scaffolding is very easy
 
 
-Aluminum Scaffolding Towers makes affordable for your project and finishes your dream project. enjoy the profits with low investments by hiring a aluminum scaffolding with Swastik Corporation.
+<a href="https://swastikcorp.com/aluminiumscaffolding.html" rel="follow">Aluminum Scaffolding Towers</a> makes affordable for your project and finishes your dream project. enjoy the profits with low investments by hiring a aluminum scaffolding with Swastik Corporation.
 
 We are one of the leading service provider of Aluminum Scaffolding Rentals in India.
 
